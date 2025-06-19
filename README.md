@@ -2,25 +2,27 @@
 # Hey ho this is my intoduction for here
 </div>
 
-- Hio you can call me ace / zuzu
+# ⋮ Zuzu.. 𖦹
 
-- i am gay nd trans
+- ⋮ Hio you can call me ace / zuzu ⸝⸝
 
-- I'm not really good with interacting . im socially awkward
+- ⋮ i am gay nd trans ⸝⸝
 
-- i will call you names as a light hearted joke. pls dont get offender
+- ⋮ I'm not really good with interacting . im socially awkward ⸝⸝
 
-- Cuddles and/or hiding is okay.
+- ⋮ i will call you names as a light hearted joke. pls dont get offender ⸝⸝
 
-- ARRhjh if ur not gonna cuds pls dont cover me :c
+- ⋮ Cuddles and/or hiding is okay. ⸝⸝
 
-- if ur seeing my pfp rn yes i do ship adminvirus, idgaf . REMINDER : 1x1x1x1 IS NOT SHEDLETSKYS SOOON
+- ⋮ ARRhjh if ur not gonna cuds pls dont cover me :c ⸝⸝
 
-- Hey adminvirus shippers. what if you oomfd me?
+- ⋮ if ur seeing my pfp rn yes i do ship adminvirus, idgaf . REMINDER : 1x1x1x1 IS NOT SHEDLETSKYS SON ⸝⸝
 
-- prns : He/it . but take a look at my prns page for more better understandment
+- ⋮ Hey adminvirus shippers. what if you oomfd me? ⸝⸝
 
-ok bye fatass
+- ⋮ prns : He/it . but take a look at my prns page for more better understandment ⸝⸝
+
+ok bye fatass <3
 <!--
 **zuzuthelightning/zuzuthelightning** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
