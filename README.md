@@ -22,7 +22,10 @@
 
 - ⋮ prns : He/it . but take a look at my prns page for more better understandment ⸝⸝
 
-ok bye fatass <3
+  ## i'd just like to say if you hc 1x1 and shed to be father and son, and then bash people who ships admin virus because of a headcanon that *SOME* people treat like its canon. Please in all kindness *GTFO AND DNI???* . But if you hc that theyre son and father, but ur chill with the ship, ur cool. im taking u home /pos. But PLEASE FOR THE LOVE OF GOD. dont EVER come up to me and bash me because of that fucking headcanon.
+1x1x1x1 ISNT SHEDLETSKY'S SON. NOR ARE THEY BLOOD RELATED. ITS A SELFCEST SHIP. A CREATION X CREATOR SHIP. EVEN ENEMIES TO LOVERS. It's **NOT** A PROSHIP. Thank you
+
+# ok bye fatass <3
 <!--
 **zuzuthelightning/zuzuthelightning** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
