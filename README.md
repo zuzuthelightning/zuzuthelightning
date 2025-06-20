@@ -23,8 +23,8 @@
 - ⋮ prns : He/it . but take a look at my prns page for more better understandment ⸝⸝
 
   ## i'd just like to say if you hc 1x1 and shed to be father and son, and then bash people who ships admin virus because of a headcanon that *SOME* people treat like its canon. Please in all kindness *GTFO AND DNI???* . PLEASE FOR THE LOVE OF GOD. dont EVER come up to me and bash me because of that fucking headcanon. I will actually block you if you bash me for this.
-1x1x1x1 ISNT SHEDLETSKY'S SON. NOR ARE THEY BLOOD RELATED. ITS A SELFCEST SHIP. A CREATION X CREATOR SHIP. EVEN ENEMIES TO LOVERS. It's **NOT** A PROSHIP. Thank you
-oh and, if your chill, dont hc them like that, just doesnt like the ship, IDM!! thats totally ur choice :3 i wont bother u or anything
+1x1x1x1 ISNT SHEDLETSKY'S SON. NOR ARE THEY BLOOD RELATED. ITS A SELFCEST SHIP. A CREATION X CREATOR SHIP. EVEN ENEMIES TO LOVERS. It's **NOT** A PROSHIP. Thank you.
+oh and, if your chill, does hc them like that but ur chill, or just generally doesnt like the ship, IDM!! thats totally ur choice :3 i wont bother u or anything
 
 # ok bye fatass <3
 <!--
