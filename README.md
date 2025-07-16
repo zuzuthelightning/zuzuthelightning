@@ -16,9 +16,7 @@
 
 - ⋮ ARRhjh if ur not gonna cuds pls dont cover me :c ⸝⸝
 
-- ⋮ i like adminvirus! :d REMINDER : 1x1x1x1 IS NOT SHEDLETSKYS SON ⸝⸝
-
-- ⋮ Hey adminvirus shippers. what if you oomfd me? ⸝⸝
+- ⋮ i like adminvirus and twofour :D ⸝⸝
 
 - ⋮ prns : He/it . but take a look at my prns page for more better understandment ⸝⸝
 
