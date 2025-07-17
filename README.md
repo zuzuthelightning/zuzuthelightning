@@ -16,9 +16,11 @@
 
 - ⋮ ARRhjh if ur not gonna cuds pls dont cover me :c ⸝⸝
 
-- ⋮ i like adminvirus and twofour :D ⸝⸝
+- ⋮ i like adminvirus, ratsweep and twofour :D ⸝⸝
 
 - ⋮ prns : He/it . but take a look at my prns page for more better understandment ⸝⸝
+
+- : i am in ALOOOT of fandoms, so you might js straight up see me everywhere LOLL . @SNIPERVISUAL is me too! ⸝⸝
 
 # ok bye fatass <3
 <!--
